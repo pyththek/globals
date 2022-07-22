@@ -1,1 +1,1 @@
-# globals
+Fivem Approved Cheater List
